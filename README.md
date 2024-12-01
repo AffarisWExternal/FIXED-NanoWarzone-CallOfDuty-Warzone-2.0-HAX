@@ -46,3 +46,5 @@ When it comes to Warzone, the effectiveness of your hacks is only half the battl
 USE THIS AT YOU'RE OWN RISK !
 Our Discord Support if It Doesnt work!
 discord.gg/nanorblx or discord.gg/UCG7ZuTw
+
+https://discord.gg/wv9WQYHb
