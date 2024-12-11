@@ -48,3 +48,6 @@ Our Discord Support if It Doesnt work!
 discord.gg/nanorblx or discord.gg/UCG7ZuTw
 
 https://discord.gg/wv9WQYHb
+
+FOR PREMIUM PACK OF THIS SOFTWARE DM ME ASAP ON DISCORD PAYMENT LTC !!!
+DISCORD: sputatf
